@@ -1,6 +1,6 @@
 - Hi, I’m @Lokiffm
 - I’m interested in gaming and coding 
-- I’m currently learning assembly 
+- I’m currently learning how to Vibe code 
 - I’m looking to collaborate on games
 - How to reach me de.lokendra@gmail.com
 - Studying at a german Gymnasium in Frankfurt 
