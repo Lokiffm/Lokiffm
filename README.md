@@ -3,7 +3,7 @@
 - I’m currently learning assembly 
 - I’m looking to collaborate on games
 - How to reach me de.lokendra@gmail.com
-- Pronouns: he/him
+- Studying at a german Gymnasium in Frankfurt 
 - Fun fact: just a normal boy
 
 <!---
